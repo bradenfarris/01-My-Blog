@@ -19,3 +19,18 @@ These specific areas house certain aspects such as:
 - microfauna
 - climate
 - human impact/population
+
+Also the the specific birds that I hunt, and the specific process of hunting certain birds. Using my expeirences I can tell stoires which involve scientific facts that cover the hunt and the landscape. 
+
+- Rio Grand Turkey
+- Quail
+- Pheasant
+- Duck
+- Goose
+
+Which are hunted in environments such as: 
+
+- short grass prairie
+- shinnery oak prairie
+- agricultural pond area
+
