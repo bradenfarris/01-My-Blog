@@ -34,3 +34,9 @@ Which are hunted in environments such as:
 - shinnery oak prairie
 - agricultural pond area
 
+
+For my blog topic I will combine the two areas of interest: hiking and hunting. They will be centered around 
+
+- where am I?
+- why am I there?
+- what is the fauna and flora of the area and the impact they have?
