@@ -8,11 +8,11 @@ I hope these stories will educate my readers of the certain places and animals I
 
 # What can I write specifically about?
 
-I can write specifcally about the birds that I hunt and the places I have been. The places I can talk about, I can talk about the animals very clearly that were there. I have seen specific animals with my own eyes in these specific places on several occasions. These places where I have hunted, hiked, and camped are very etched in my mind, because I have experienced them first hand many times. I am also i conservation major, so I am constantly thinking of these places, flora, and fauna from a wildlife management perspective. I think giving a specific description of these places, and the fauna and flora that inhabit it, will educate, entertain, and inspire my readers. These specific places include: *Wichita Mountains in SW Oklahoma, Black Mesa in far NW Oklahoma, the Black Canyon of the Gunnison River in SW Colorado, and the lake city area of Colorado, which houses many nationnal forest and mountain ranges, as well as the Alpine Loop Back Country Way*.
+I can write specifcally about the birds that I hunt and the places I have been. The places I can talk about, I can talk about the animals very clearly that were there. I have seen specific animals with my own eyes in these specific places on several occasions. These places where I have hunted, hiked, and camped are very etched in my mind, because I have experienced them first hand many times. I am also i conservation major, so I am constantly thinking of these places, flora, and fauna from a wildlife management perspective. I think giving a specific description of these places, and the fauna and flora that inhabit it, will educate, entertain, and inspire my readers. These specific places include: *Wichita Mountains in SW Oklahoma, Black Mesa in far NW Oklahoma, the Black Canyon of the Gunnison River in SW Colorado, and the Lake City area of Colorado, which houses many nationnal forest and mountain ranges, as well as the Alpine Loop Back Country Byway*.
 
 These specific areas house certain aspects such as:
 
-- geologcal feautures
+- geological feautures
 - flowers
 - trees
 - megafauna
