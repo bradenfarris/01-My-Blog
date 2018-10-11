@@ -12,10 +12,10 @@ I can write specifcally about the birds that I hunt and the places I have been. 
 
 These specific areas house certain aspects such as:
 
--geologcal feautures
--flowers
--trees
--megafauna
--microfauna
--climate
--human impact/population
+- geologcal feautures
+- flowers
+- trees
+- megafauna
+- microfauna
+- climate
+- human impact/population
