@@ -2,7 +2,7 @@
 
 # Blog Topic
 
-My proposed blog topic is a narrative type of scientifc blog, using my own personal stories. These stories will be focused on my favorite hunting, camping, and road trips out west along the rocky mountains. My stories will be authentic and true, and I would like to incorporate scientific facts that I encountered during these stories, such as animal species, conservation, etc. 
+My proposed blog topic is a narrative type of scientifc blog, using my own personal stories. These stories will focus on the specific animals (painted grasshopper, moose, bear, bison, etc.) and the environments (Black Mesa, Rocky Mountians, Wichita Mountains, etc.) they were in. They will focus around the activities of hunting, hiking, and camping. 
 
-The point of this blog is to entertain, inspire, and educate my readers. I am hoping the authentic stories will maybe inspire people to take up bird hunting, camping, or road tripping out west to enjoy the Rocky Mountains and many National Parks. I will educate my audience by explaining the importance of the animal and plant species I encounter along my stories, and how they pertain to conservation efforts and the history behind them. 
+I hope these stories will educate my readers of the certain places and animals I have experienced, and inspire them to go those places to experience it for themselves. 
 
