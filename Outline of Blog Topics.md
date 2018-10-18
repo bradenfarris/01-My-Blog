@@ -15,3 +15,4 @@ The specific place is Black Mesa, Oklahoma.
 ## Blog 4
 
 The specific place is the San Juan mountain range, Gunnison National forest, and the Alpine back country byway in south/central Colorado. 
+
