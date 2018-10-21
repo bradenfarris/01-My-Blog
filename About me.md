@@ -1,0 +1,3 @@
+# About the Author
+
+My name is Braden Farris and I am a senior at College of the Ozarks, with my graduation set for Spring 2019. My degree will be in Wildlife Managament and Conservation and I will have a minor in Business Administration. After graduation I will be working for the United States Air Force as a Logistics Specialist at Tinker Air Force Base in Oklahoma City. I have called Oklahoma City my home since 2008, and lived in surrounding small towns up until that point. I am an avid hunter of waterfowl, upland birds, and turkey. Besides hunting I enjoy traveling to the National Parks and Monuments of America, camping, and training our families bird dogs. 
